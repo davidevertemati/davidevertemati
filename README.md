@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @davidevertemati
+- 🌱 I’m currently learning Theoretical Physics
+- 📫 How to reach me: d.vertemati@campus.unimib.it
